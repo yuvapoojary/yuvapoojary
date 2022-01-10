@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on [CrustPlay](https://CrustPlay.com)
 
-- 📫 How to reach me **yuva@crustplay.com**
+- 📫 How to reach me **yuvapoojary@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
